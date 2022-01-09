@@ -29,10 +29,6 @@ Let me tell more about myself, my expectations, and my goals in this little pres
 >* Rave </br>
 >👉[REPEAT](https://youtu.be/wBoRkg5-Ieg?t=179)👈
 
-# Coucou toi :P 
-
-# TEST
-
 </br> 
 
 > ### **The objectives I want to achieve as a developer during Becode**
